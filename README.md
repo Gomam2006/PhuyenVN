@@ -1,1 +1,1 @@
-# PhuyenVN
+# PhuyenVN Human life is caught up in circumstances. too much preoccupation outside the body and within the mind. People have not yet determined the value of life, the truth they exist and disappear. Pi network connects people, we have the tools to learn and experience self-worth together
